@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MinHoang34
-- 👀 I’m interested in Coding and Playing volleyball
+- 👀 I’m interested in Coding and Playing Volleyball
 - 🌱 I’m currently learning at Ho Chi Minh City University of Technology (Automation - Honors Program)
 - 📫 How to reach me: Nminhhoang0304@gmail.com / Hoang.nguyen34@hcmut.edu.vn
 
